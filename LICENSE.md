@@ -1,4 +1,4 @@
-# 
+# Experience anime card collection like never before with best Script for anime card collection, the #1 Script. Includes silent aim and esp for
 
 
 
